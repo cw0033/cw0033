@@ -19,7 +19,7 @@ Technologies I have been working with:
 - Microsoft Office
 ## Let's Connect
 
-Reach me at: [linkedin.com/in/emilywu0033](chiwu0033@outlook.com)
+Reach me at: [chiwu0033@outlook.com](chiwu0033@outlook.com)
 
 Conneect with me at: [LinkedIn](linkedin.com/in/emilywu0033)
 
